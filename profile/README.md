@@ -1,5 +1,7 @@
 ## Hi there 👋
 
+We build software with MAGIC and LOVE 🥰
+
 <!--
 
 **Here are some ideas to get you started:**
