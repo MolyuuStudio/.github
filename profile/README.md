@@ -3,5 +3,5 @@
 
 We build software with MAGIC and LOVE 🥰
 
-Welcome to our [Telegram Channel](https://t.me/jiaqiproject) and [Telegram Group](https://t.me/jiaqiprojectgroup)!
+Welcome to our [Telegram Channel](https://t.me/molyuu_update) and [Telegram Group](https://t.me/molyuu_group)!
 
